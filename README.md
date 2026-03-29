@@ -1,1 +1,0 @@
-# geskerjunior.github.io
